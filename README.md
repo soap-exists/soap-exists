@@ -3,4 +3,4 @@
 <p align="center"> ☆﹒ꕀ﹔ Soap! / iTrapped! / Isaac! / Sua! / Elijah! / p.AI.nter! ﹒ꕀ﹒
 <p align="center">﹐⸝⸝  ﹐ Semi-Verbal! / Severe Cover Discomfort! / Occasional Touch Discomfort! :  ˙ . ꒷
 <p align="center"> ꕀ﹒ᶻz ; Minor! / Nonbinary! / INTP! ── .✦
-<img src="https://media.discordapp.net/attachments/1308243459307606050/1378879392867942522/2A86B0C1-86FE-4DCF-B4E8-043320333C63.jpg?ex=693414c1&is=6932c341&hm=de0632b46cfca3b1e013a2a00b91d8ae7d1bf156005cdd1b030f6ad9f8079d84&=&format=webp&width=1101&height=636" alt="Alt text">
+<img src="https://media.discordapp.net/attachments/1419295435369222316/1419314750046736504/5AA2118B-5891-4635-99B3-1296E2FB8841.gif?ex=69342fde&is=6932de5e&hm=d2b8391aa7c4ebcabb453cb33c27823f742a3b3cdb23a50db850ec4a86d3b655&=&width=800&height=450" alt="Alt text">
