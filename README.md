@@ -1,3 +1,3 @@
 <p align="center"> ˚　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 
-<p align="center"&color=_D6EDFF> Welcome!
+<p align="center"&color=D6EDFF> Welcome!
