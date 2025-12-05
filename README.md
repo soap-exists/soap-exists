@@ -1,5 +1,5 @@
 <p align="center"> ˚　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 
-<p align="center"&color=D6EDFF> Welcome!
-
-![footer](https://media.discordapp.net/attachments/1419295435369222316/1419314750046736504/5AA2118B-5891-4635-99B3-1296E2FB8841.gif?ex=69342fde&is=6932de5e&hm=d2b8391aa7c4ebcabb453cb33c27823f742a3b3cdb23a50db850ec4a86d3b655&=&width=800&height=450/api?section=footer)
+<p align="center"> ╰┈➤ˎˊ˗ . FICTKINS : iTrapped/Isaac, Elijah Songaa, Sua, p.AI.nter!
+  
+<p align="center">
