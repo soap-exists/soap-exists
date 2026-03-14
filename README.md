@@ -1,7 +1,7 @@
 <p align="center"> ˚　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 <p align="center">   
 <p align="center"> ﹒⟡﹒; They! ﹒﹒︴ Them!  ꒷꒦:˚꒱
-<p align="center"> ☆﹒ꕀ﹔ Soap! / iTrapped! / Isaac! / Sua! / Elijah! / p.AI.nter! ﹒ꕀ﹒
+<p align="center"> ☆﹒ꕀ﹔ Soap! / iTrapped! / Isaac! / Elijah! / p.AI.nter! ﹒ꕀ﹒
 <p align="center">﹐⸝⸝  ﹐  Severe Cover Discomfort! / Occasional Touch Discomfort! :  ˙ . ꒷
 <p align="center"> ꕀ﹒ᶻz ; Minor! / Nonbinary! / ENTP! ── .✦
 <p align="center"> ˖.𖥔 Color my Tree! / Sign my Atabook! ݁ ˖ ⊹ ࣪ ˖ 
