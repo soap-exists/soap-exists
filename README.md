@@ -4,7 +4,6 @@ intro
 - 🇭🇳 + 🇻🇪 + 🇵🇸
 - minor
 - fictkin
-- entp but im usually more introverted online
 
 byi
 - im a dry txter sorry
