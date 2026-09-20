@@ -21,4 +21,15 @@ dni
 - trump + ice + israel supporters
 - hb + hh (unless oomfs)
 
+typology
+- ENTP
+- Ne Ti Fe Si
+- Sp7(w8)
+- Sp783
+- Sang-Chol
+- Chaotic Neutral
+- FL³VE (still figuring it out)
+- [S]Cu/E/i (BIG FIVE)
+- aoH[W]/V/Eg (MOTIVES)
+
 im prob not remaking this
