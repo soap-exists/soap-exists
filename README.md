@@ -7,8 +7,6 @@ intro
 
 byi
 - im a dry txter sorry
-- i usually need tonetags
-- semi-verbal
 - i get overwhelmed easily js bear w me
 - terrible memory
 - might have adhd but im NOT diagnosed
@@ -22,13 +20,13 @@ dni
 
 typology
 - ENTP
-- Ne Ti Fe Si
+- Ne > Ti > Fe > Si
 - Sp7(w8)
-- Sp783
+- Sp782
 - Sang-Chol
 - Chaotic Neutral
-- FL³VE (still figuring it out)
-- [S]Cu/E/i (BIG FIVE)
-- aoH[W]/V/Eg (MOTIVES)
+- FLVE (4323)
+- [S]Cu/E/i
+- moH[W]/V/Eg
 
-im prob not remaking this
+
