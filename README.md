@@ -6,8 +6,7 @@ intro
 - fictkin
 
 byi
-- im a dry txter sorry
-- i get overwhelmed easily js bear w me
+- im a dry txter sorry but not really
 - terrible memory
 - might have adhd but im NOT diagnosed
 
