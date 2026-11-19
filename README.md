@@ -19,13 +19,10 @@ dni
 
 typology
 - ENTP
-- Ne > Ti > Fe > Si
-- Sp7(w8)
-- Sp782
-- Sang-Chol
-- Chaotic Neutral
-- FLVE (4323)
-- [S]Cu/E/i
-- moH[W]/V/Eg
-
+- Se > Ti > Fe > Ni
+- Sp8(w7)
+- Sp872
+- Chol-Sang
+- VFLE (3123)
+- [S]Lu/E/i
 
