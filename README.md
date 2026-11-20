@@ -18,10 +18,10 @@ dni
 - hb + hh (unless oomfs)
 
 typology
-- ENTP
+- ESTP
 - Se > Ti > Fe > Ni
 - Sp8(w7)
-- Sp872
+- Sp827
 - Chol-Sang
 - VFLE (3123)
 - [S]Lu/E/i
